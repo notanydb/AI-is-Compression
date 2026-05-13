@@ -193,3 +193,5 @@ This work was produced by **Omar Hedhli**, a 15-year-old researcher with a deep 
 ---
 
 *"Every model is a compressor. Every compression is a theory of the world."*
+
+![](./ʇʇnq%20uǝʞɔıɥɔ.jpg)
