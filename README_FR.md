@@ -192,3 +192,5 @@ Ce travail a été produit par **Omar Hedhli**, chercheur de 15 ans passionné p
 ---
 
 *« Tout modèle est un compresseur. Toute compression est une théorie du monde. »*
+
+![](./ʇʇnq%20uǝʞɔıɥɔ.jpg)
